@@ -1,2 +1,2 @@
 # wooseong
-wooseong.xyz
+wooseong.pw
